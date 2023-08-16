@@ -57,3 +57,7 @@ https://www.youtube.com/watch?v=gAa6rOtreCU
 ## Logical Russian Guy
 
 https://www.youtube.com/watch?v=oKjY5tgELnE
+
+## Pixels etc. Live FB launch
+
+https://www.youtube.com/watch?v=FVfOXoEW06o
