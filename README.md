@@ -25,7 +25,7 @@ Details from here"
 https://youtu.be/StoAuGPEOqo?t=279
 
 ### Crowdfunding Demystified
-
+First vid more technical... second more conceptual...
 https://www.youtube.com/watch?v=vbMbQbfOntc
 https://www.youtube.com/watch?v=FpP7ra8twt
 
