@@ -28,5 +28,7 @@ https://youtu.be/StoAuGPEOqo?t=279
 
 https://www.youtube.com/watch?v=vbMbQbfOntc
 https://www.youtube.com/watch?v=FpP7ra8twt
- 
 
+## Useful Searches
+ 
+https://www.youtube.com/results?search_query=how+to+find+donors+on+facebook+ads
