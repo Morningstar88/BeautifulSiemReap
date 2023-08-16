@@ -48,3 +48,7 @@ https://www.gofundme.com/c/success
 https://help.startsomegood.com/en/articles/2975234-stripe-overview-and-fees
 
 https://help.startsomegood.com/en/articles/2975234-stripe-overview-and-fees
+
+## Facebook  (now defunct)
+
+https://www.youtube.com/watch?v=gAa6rOtreCU
