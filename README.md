@@ -18,7 +18,7 @@ We also aim to teah Khmer people to use Github, and crowdfunding sites, so they 
 
 ##  FACEBOOK TARGETED ADS
 
-Frequent International Travelers. Luxury Latest Phones. iPhone 14, etc... Interests Kickstarter
+Frequent International Travelers. Luxury Latest Phones. iPhone 14, etc... Interests Kickstarter. Optimize for link clicks. costs control
 
 Details from here"
 
