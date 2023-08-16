@@ -53,3 +53,7 @@ https://help.startsomegood.com/en/articles/2975234-stripe-overview-and-fees
 ## Facebook  (now defunct)
 
 https://www.youtube.com/watch?v=gAa6rOtreCU
+
+## Logical Russian Guy
+
+https://www.youtube.com/watch?v=oKjY5tgELnE
