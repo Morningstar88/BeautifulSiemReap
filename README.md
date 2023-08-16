@@ -35,6 +35,12 @@ https://www.youtube.com/results?search_query=how+to+find+donors+on+facebook+ads
 
 ## Intelligent Indian Guy
 
-Finding funds on Facebook
+## Finding funds on Facebook
 
-https://www.youtube.com/watch?v=w0NgCS_a9Tc
+https://youtu.be/w0NgCS_a9Tc
+
+## Stripe
+
+https://help.startsomegood.com/en/articles/2975234-stripe-overview-and-fees
+
+https://help.startsomegood.com/en/articles/2975234-stripe-overview-and-fees
