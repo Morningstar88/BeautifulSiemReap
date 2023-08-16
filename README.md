@@ -14,8 +14,9 @@ We also aim to teah Khmer people to use Github, and crowdfunding sites, so they 
 - Make a Khmer translation
 - Write sheet for collavborators..
 - Check Stripe
--
-
+- Do Khmercare Admin.
+- Buy Phone.
+  
 ##  FACEBOOK TARGETED ADS
 
 Frequent International Travelers. Luxury Latest Phones. iPhone 14, etc... Interests Kickstarter. Optimize for link clicks. costs control
