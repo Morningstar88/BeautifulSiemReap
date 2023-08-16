@@ -32,3 +32,9 @@ https://www.youtube.com/watch?v=FpP7ra8twt
 ## Useful Searches
  
 https://www.youtube.com/results?search_query=how+to+find+donors+on+facebook+ads
+
+## Intelligent Indian Guy
+
+Finding funds on Facebook
+
+https://www.youtube.com/watch?v=w0NgCS_a9Tc
