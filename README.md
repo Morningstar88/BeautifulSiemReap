@@ -6,3 +6,12 @@ We want to pay local Khmer people 10USD per hour to collect and bag trash. We wi
 set up a system for the future, and create jobs for Khmer people
 
 We also aim to teah Khmer people to use Github, and crowdfunding sites, so they can raise their own money.
+
+TODO
+
+- Take a few pictures...
+- Make a video.
+- Make a Khmer translation
+- Write sheet for collavborators..
+- Check Stripe
+-
