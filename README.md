@@ -23,3 +23,7 @@ Frequent International Travelers. Luxury Latest Phones. iPhone 14, etc...
 Details from here"
 
 https://youtu.be/StoAuGPEOqo?t=279
+
+### Crowdfunding Demystified
+
+https://www.youtube.com/watch?v=vbMbQbfOntc
