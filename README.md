@@ -27,3 +27,6 @@ https://youtu.be/StoAuGPEOqo?t=279
 ### Crowdfunding Demystified
 
 https://www.youtube.com/watch?v=vbMbQbfOntc
+https://www.youtube.com/watch?v=FpP7ra8twt
+ 
+
